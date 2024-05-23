@@ -1,16 +1,14 @@
-## Hi there 👋
+### Welcome to my Profile 💙 ## 
 
-<!--
-**SONICbrs200/SONICbrs200** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is SONICbrs200.
 
-Here are some ideas to get you started:
+- This is my first interaction with the plataform. I have a dream, I want to become the SEGA Sonic Team's CEO.
+- Sharing some website to follow the instructions of the module, here is the [SEGA's Sonic web page](https://sonicthehedgehog.com/)
+- That dream is mine, and I won't leave it. I'll come this in a truth.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## For Now, Don't Contact Me 💛❤️ ##
+
+Email Adress: ----
+
+## GOTTA GO FAST WITH ME
+![sonic-x-sonic](https://github.com/SONICbrs200/SONICbrs200/assets/170676058/c9a02a31-e080-4351-9c33-3d0c8cb4bd5f)
