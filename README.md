@@ -6,7 +6,7 @@
 - Sharing some website to follow the instructions of the module, here is the [SEGA's Sonic web page](https://sonicthehedgehog.com/)
 - That dream is mine, and I won't leave it. I'll come this in a truth.
 
-## For Now, Don't Contact Me 💛❤️ ##
+## While Now, Don't Contact Me 💛❤️ ##
 
 > Email Adress: ----
 
